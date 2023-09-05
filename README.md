@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @karthickofficl
-- 👀 I’m interested in web 3.0 developement
+- 👀 I’m interested in web 3.0 development
 - 🌱 I’m currently learning Blockchain
 - 💞️ I’m looking to collaborate on Blockchain
 - 📫 How to reach me @karthickofficl
