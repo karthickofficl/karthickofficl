@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @karthickofficl
 - 👀 I’m interested
-- 🌱 I’m currently learning 
+- 🌱 I’m currently working 
 - 💞️ I’m looking to collaborate
 - 📫 How to reach me @karthickofficl
 
